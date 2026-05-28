@@ -1,1 +1,0 @@
-# compass-sniper-help
